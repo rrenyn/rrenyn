@@ -4,8 +4,8 @@
 <BR>
 <h1><p align="center"> ݁˖𓂃☘︎˖. Ren ˖᯽ ݁˖
 <BR> 
-  <p align="center"> .𖥔 ݁ ݁˖ Interested in ; <i><b>Pokemon</i></b>, drawing, a bit of animation and writing,<BR> 
-  Building on roblox studio, oc making, and more</i> 𖧧
+  <p align="center"> .𖥔 ݁ ݁˖ Interested in ; <i><b>Pokemon</i></b>, drawing, a bit of animation and writing, Building on roblox studio, oc making,<BR> 
+  and more</i> 𖧧
   <br>
     <br>
   ˖᯽ ݁˖ 17 ˚. ᵎᵎ
